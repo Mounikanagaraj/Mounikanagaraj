@@ -27,7 +27,7 @@ Email: [mounikanagaraj1@gmail.com](url)
 
 LinkedIn: [https://www.linkedin.com/in/mounika-kunchapu-64aa28239](url)
 
- 📂 [Download My Resume] - [https://github.com/Mounikanagaraj/Mounikanagaraj/blob/main/CV_T.pdf](url)
+ 📂 [Download My Resume] - [Resume_S.pdf](url)
  
  GitHub Status- 
  mounikanagaraj -[ https://mounikanagaraj.github.io/Mounikanagaraj/](url)
