@@ -22,11 +22,11 @@ Workflow Enhancer: Spearheaded improvements in screening processes, achieving a 
 When I’m off the clock, I’m indulging in my creative passions— singing, dancing semi-classical Kathak, and sketching. My motto: "When passion meets fashion, magic happens!" I believe in exploring every corner of life with enthusiasm and making a unique mark wherever I go. 💫
 
  📬 Let’s Connect!  
+CALL- +91 9959153684
 Email: mounikanagaraj1@gmail.com 
-LinkedIn: [linkedin.com/in/mounika-kunchapu-64aa28239](url)
+LinkedIn: https://www.linkedin.com/in/mounika-kunchapu-64aa28239
 
  📂 [Download My Resume] -[ https://github.com/Mounikanagaraj/Mounikanagaraj/blob/main/CV_T.pdf](url)
 
  GitHub Status- 
- mounikanagaraj - [https://github.com/Mounikanagaraj/Mounikanagaraj.git](https://github.com/Mounikanagaraj/Mounikanagaraj.git)
-
+ mounikanagaraj - https://mounikanagaraj.github.io/Mounikanagaraj/
