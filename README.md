@@ -24,9 +24,10 @@ When I’m off the clock, I’m indulging in my creative passions— singing, da
  📬 Let’s Connect!  
 CALL- +91 9959153684
 Email: mounikanagaraj1@gmail.com 
+
 LinkedIn: https://www.linkedin.com/in/mounika-kunchapu-64aa28239
 
- 📂 [Download My Resume] -[ https://github.com/Mounikanagaraj/Mounikanagaraj/blob/main/CV_T.pdf](url)
-
+ 📂 [Download My Resume] - https://github.com/Mounikanagaraj/Mounikanagaraj/blob/main/CV_T.pdf
+ 
  GitHub Status- 
  mounikanagaraj - https://mounikanagaraj.github.io/Mounikanagaraj/
