@@ -25,8 +25,7 @@ When I’m off the clock, I’m indulging in my creative passions— singing, da
 Email: mounikanagaraj1@gmail.com 
 LinkedIn: [linkedin.com/in/mounika-kunchapu-64aa28239](url)
 
- 📂 [Download My Resume] - [Mounikanagaraj
-/CV_T.pdf](url)
+ 📂 [Download My Resume] - [https://1drv.ms/b/c/af763517103fdd3f/Eea-8hzNP6lEmImYkGp0gSsBmiJp-8jvWUd_ObI-knh00w?e=xLNsF0](url)
  
  GitHub Status- 
  mounikanagaraj - [https://github.com/Mounikanagaraj/Mounikanagaraj.git](https://github.com/Mounikanagaraj/Mounikanagaraj.git)
