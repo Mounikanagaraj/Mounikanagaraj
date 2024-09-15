@@ -23,11 +23,11 @@ When I’m off the clock, I’m indulging in my creative passions— singing, da
 
  📬 Let’s Connect!  
 CALL- +91 9959153684
-Email: mounikanagaraj1@gmail.com 
+Email: [mounikanagaraj1@gmail.com](url) 
 
-LinkedIn: https://www.linkedin.com/in/mounika-kunchapu-64aa28239
+LinkedIn: [https://www.linkedin.com/in/mounika-kunchapu-64aa28239](url)
 
- 📂 [Download My Resume] - https://github.com/Mounikanagaraj/Mounikanagaraj/blob/main/CV_T.pdf
+ 📂 [Download My Resume] - [https://github.com/Mounikanagaraj/Mounikanagaraj/blob/main/CV_T.pdf](url)
  
  GitHub Status- 
- mounikanagaraj - https://mounikanagaraj.github.io/Mounikanagaraj/
+ mounikanagaraj -[ https://mounikanagaraj.github.io/Mounikanagaraj/](url)
